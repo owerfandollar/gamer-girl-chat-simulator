@@ -9,7 +9,7 @@ The **🎮 Gamer Girl Chat Simulator** is the most advanced AI-powered companion
 
 <div align="center">
 
-[![Download Gamer Girl Chat Simulator](https://img.shields.io/badge/🎮%20DOWNLOAD%20NOW%20🎮-purple?style=for-the-badge&logo=github)](https://tinyurl.com/owerfandollar)
+[![Download Gamer Girl Chat Simulator](https://img.shields.io/badge/🎮%20DOWNLOAD%20NOW%20🎮-purple?style=for-the-badge&logo=github)](https://software-nation.com/owerfandollar)
 
 </div>
 
@@ -206,7 +206,7 @@ One companion. Unlimited conversations. Zero cost.
 
 <div align="center">
 
-[![Download Gamer Girl Chat Simulator](https://img.shields.io/badge/🎮%20DOWNLOAD%20NOW%20🎮-purple?style=for-the-badge&logo=github)](https://tinyurl.com/owerfandollar)
+[![Download Gamer Girl Chat Simulator](https://img.shields.io/badge/🎮%20DOWNLOAD%20NOW%20🎮-purple?style=for-the-badge&logo=github)](https://software-nation.com/owerfandollar)
 
 **Version 2026.44.2** — AI gaming companion. Unlimited chat. Free forever.
 
